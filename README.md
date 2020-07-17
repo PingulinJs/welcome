@@ -10,6 +10,6 @@ My name is Eliah, I am 13 years old and have fun programming! I'm going to uploa
 ## Email
 
 Shoot me an Email! :D 
-(pingulin@outlook.de)
+(admin@pingulin.me)
 
 [DeepL Translator]
